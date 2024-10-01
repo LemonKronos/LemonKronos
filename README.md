@@ -1,1 +1,1 @@
-Study at Ho Chi Minh University of Technology.
+Study at Backhoa - Ho Chi Minh University of Technology.
